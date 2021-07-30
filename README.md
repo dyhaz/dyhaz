@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+### Support me on :
+
+https://trakteer.id/muhammad-idxsd
+
 <!--
 **dyhaz/dyhaz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
